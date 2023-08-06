@@ -6,6 +6,6 @@
 
 💞️ I'm open to collaborating on exciting projects related to web development.
 
-📫 You can reach me at akasivan@gmail.com or find me on Telegram as @sivanlol.
+📫 You can reach me at akasivan69@gmail.com or find me on Telegram as @sivanlol.
 
 ✨ Feel free to connect with me and let's create something awesome together!
